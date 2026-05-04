@@ -1,4 +1,4 @@
-## Hi there. I,m Muskan Ashraf Apia👋
+## Hi there, I'm Muskan Ashraf Apia👋
 
 💻 About Me
 
